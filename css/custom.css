@@ -34,6 +34,8 @@ transform:rotate(90deg);
 -moz-transform:rotate(90deg); 	/* Firefox */
 -webkit-transform:rotate(90deg); /* Safari 和 Chrome */
 -o-transform:rotate(90deg); 	/* Opera */
+width:300px;
+height:300px;
 }
 * {
     outline: none;
