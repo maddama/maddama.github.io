@@ -27,7 +27,14 @@
 /**
  * 2.0 - General Elements
  */
-
+.img-90deg
+{
+transform:rotate(90deg);
+-ms-transform:rotate(90deg); 	/* IE 9 */
+-moz-transform:rotate(90deg); 	/* Firefox */
+-webkit-transform:rotate(90deg); /* Safari 和 Chrome */
+-o-transform:rotate(90deg); 	/* Opera */
+}
 * {
     outline: none;
 }
