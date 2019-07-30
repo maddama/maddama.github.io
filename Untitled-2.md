@@ -11,4 +11,5 @@ This situation happened to China as well, with the development of office culture
 This is exhibition full of collections made of human hairs. Long hairs are often considered a significant symbolization of african american and mexican american, and palys a important role in racial identity.
 The artist express her sense of beauty through her artwork by twisting the hair into the traditional african style.
 Beauty politics is a new topic to me, so I did a little research about it, and I found some interesting conclusions. "How we should look like?" and "What is beauty?" can largely decide our self-identity, and finally became a political issue.
-
+##Other
+There are also other exhibitions at the museum, expressing the fear and anger aginst violence, and a photography exhibition about how image evolved under the influence of internet, but these are not my priority.
