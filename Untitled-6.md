@@ -6,4 +6,4 @@ On our long way across the California valley, the endless pasture and fields of 
 
 But I am so astonnished by the advance of the argricultural techniques, and almost want to settle down here to be a famer, getting away from the city and provide me and my family with my bare hands and all the machines. But after all, it is just a fantasy, there is no way I could make such a huge turn in my life.
 
-Then she also filled us with the history of California. It was originally the domain of the Spainsh, who have spent over a hundred years here to find gold to support their empire
+Then she also filled us with the history of California. California was originally the domain of the Spainsh, who have spent over a hundred years in California looking for gold. The Spainish find nothing and finally the land was taken by
