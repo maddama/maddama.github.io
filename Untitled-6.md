@@ -14,4 +14,9 @@ We also spotted a lot of fallen tree due to the wild fire. Because of the consta
 
 And conservation like yosemite are properties of the federal government, so we can't take out a single stone out of it and should leave nothing but our footprint. And president Trump is now trying to cut down the area of national park so that there could be more industry and the economic will rise accordingly. This could be a huge damage to the conserved area, and it is only a short-term solution to the problem that American encountered right now. I think one of the reason that makes developed country a developed country is that it doesn't need to destroy the environment and labour its people to maintain the growth of the economics. In China, we have a saying foe that behavior:" Kill the chick for one egg", which you will never get more eggs after you killed it.
 
-And a very bad phenomenon happens during our trip. Everytime we get together to get on the bus, people get late, and they are all Chinese students. I feel so humiliated at thosetimes. Though I know that I am not the one to blame, but you always want your country with
+And a very bad phenomenon happens during our trip. Everytime we get together to get on the bus, people get late, and they are all Chinese students. I feel so humiliated at thosetimes. Though I know that I am not the one to blame, but you always want your country represent well so you will not be treated like as a stereotype like this.
+
+For other of my travel, I have visited several falls in yosemite. The tour guide told us it is lucky that they are all abundent, because they always dry out in Aug since the snow on the summit are all melt at this time. 
+
+One of them is very hard to climb to, the road are so steep and the rocks are so tough. However, that is also the place where I got the best view. And it feels real good to get something good after working hard.
+
