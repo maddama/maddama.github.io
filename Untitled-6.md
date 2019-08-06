@@ -20,5 +20,7 @@ For other of my travel, I have visited several falls in yosemite. The tour guide
 
 One of them is very hard to climb to, the road are so steep and the rocks are so tough. However, that is also the place where I got the best view. And it feels real good to get something good after working hard. I may cite another old saying:"You can only see the rainbow after a strom."
 
-And I have seem the brave warrior who just finish climb a vertical rock
+And I have seem the brave warrior who just finish climb a vertical rock. the last guy, maybe the team leader, was resposible for untieing the knots. After untieing all the knots, he climb down from a 20 meter rock with his bare hands, I think I would never be able to do something like that. It is very strange that, generally speaking, the ones who tresure his life more should survive the brutal evolution easier. However, the ones who are willing to risk his life are more respected than the former ones. I think I would settle being a ordinary people instead of dying at a yong age doing thrilling things.
+
+
 
