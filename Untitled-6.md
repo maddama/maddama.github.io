@@ -18,5 +18,7 @@ And a very bad phenomenon happens during our trip. Everytime we get together to 
 
 For other of my travel, I have visited several falls in yosemite. The tour guide told us it is lucky that they are all abundent, because they always dry out in Aug since the snow on the summit are all melt at this time. 
 
-One of them is very hard to climb to, the road are so steep and the rocks are so tough. However, that is also the place where I got the best view. And it feels real good to get something good after working hard.
+One of them is very hard to climb to, the road are so steep and the rocks are so tough. However, that is also the place where I got the best view. And it feels real good to get something good after working hard. I may cite another old saying:"You can only see the rainbow after a strom."
+
+And I have seem the brave warrior who just finish climb a vertical rock
 
