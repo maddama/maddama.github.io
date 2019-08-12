@@ -1,18 +1,35 @@
+##Trader Joe's
 I have been to trader joe's and Safeway several times. Most times, I would go there and try to find some cereal and dairy for my breakfast. Sometimes I also try to get some vegetables and meat for lunch. However, since I have purchased a costly meal plan in Berkeley, so it is not wise to cook my meals. Thus I can save time and money.
-I have tried to make a sandwich for Ms.Mason's birthday. But the meat doesn't taste well,  the bread is very tough, barely unchewable, either. So I quit the idea. By now, the tomato and lettuce are still lying in my refrigerator.
-I have noticed a phenomenon that when it comes to the product can be massively produced. The product tends to be much cheaper than those who can't be created automatically. I guess it has something to do with the high labor costs in American.
-The shelf of snacks, jams are in the center of the store, surrounded by refrigerators, fruit, and vegetables. Sometimes they also put some bagged greens in the fridge, which are produced by trader joe's itself. I think it can maximize the possibility of people buying their stuff. Also, by decorating the store this way, people who are only interested in buying snacks will be separated from people intended buying unprocessed products.
-I always find the pepper in American not spicy enough compared to those sold in China, and I only learned to cook with garlic, soybean sauce, and pepper. So it is challenging for me to find a proper recipe to cook this week. I think I may just put some of the vegetables together, put them into the boiling water, then I can put some of the apple sauce I get at the trader joes on top of it to make a simple salad.
+
 For more information to complete the whole lot of questions for us in this fieldwork, I went to trader joe's with Xu Liao and Rebeca this Thursday after shot the first scene of our film. We find someone at the produce department and ask her the questions given by Ms. Mason, but she said that she is only a new worker here, we should ask the manager.
+
 So we asked the manager where the pepper and green beans were produced, and he told us that the pepper is from Mexico or somewhere else since the label on it says that it is produced outside of American, and the green beans are local, produced and bagged at California. The trader joe's company participated in the whole process from the plantation to the delivery of the green beans.
+
+##My Recipe
+I have noticed a phenomenon that when it comes to the product can be massively produced. The product tends to be much cheaper than those who can't be created automatically. I guess it has something to do with the high labor costs in American.
+
+The shelf of snacks, jams are in the center of the store, surrounded by refrigerators, fruit, and vegetables. Sometimes they also put some bagged greens in the fridge, which are produced by trader joe's itself. I think it can maximize the possibility of people buying their stuff. Also, by decorating the store this way, people who are only interested in buying snacks will be separated from people intended buying unprocessed products.
+
+I always find the pepper in American not spicy enough compared to those sold in China, and I only learned to cook with garlic, soybean sauce, and pepper. So it is challenging for me to find a proper recipe to cook this week. I think I may just put some of the vegetables together, put them into the boiling water, then I can put some of the apple sauce I get at the trader joes on top of it to make a simple salad.
+
+I have tried to make a sandwich for Ms.Mason's birthday. But the meat doesn't taste well,  the bread is very tough, barely unchewable, either. So I quit the idea. By now, the tomato and lettuce are still lying in my refrigerator.
+
 I have bought two types of cheap meat, which is not organic, and they both taste awful. One has mixed into too much powder that it should be called ham instead of bacon or pork. The other is too salty and has a strong taste of the blood which I can't get away with it with boiling water, I tried mixing it with scrambled egg, but it didn't turn well, either. They both lying at the bottom of my refrigerator quietly right now.
+
+##Farmer's Market
 Next day, I went to the farmer's market in downtown Berkeley with my roommate, and lucky enough to catch a dancing festival here, I asked my roommate to have a little dance with me, but he refused immediately. We are both single nerdy engineering students, but I think this trip to American and the English course have changed me a lot, I am more open to new things and willing to explore. But my roommate only attends two easy lecture, so he has plenty of time playing video games at his bedroom, I think his behavior is irresponsible for his future and his parents' hard work to get him here.
+
 There are about 30 tents that sell different products in the market. I think I can divide it into four sections.
+
 The first I think should be the meal section, which is closest to the busy street at east. There are African food and Indian food and ice cream, and so on, I think it is a little more expensive than the ones in trader joes. Regular ice cream in the small cup could cost me four bucks, which trader joe's sell at the price of 3 dollars.
+
 The second section I think should be the fruit section where people sells peaches, oranges and melons and so on. I bought three peaches there, and it costs me 5.65 bucks, and the price is also a little higher than the ones in the trader joes, where I can buy 5 or more peaches with the same price. The farmer sold peaches told me that they have five types of peaches today, and they have planted much more varieties of peaches in their hacienda. She told me that they live in broadest( which I could not find on the google map, I think I had misheard what she said), it is not far from Berkeley.
+
 The third is the vegetable section. I did not do much research here.
 The fourth is the general farmer's product section, where jams and chocolate are sold. I have bought black chocolate for our class, because I tasted it, and it turned out to be pretty well. The chocolate is produced right at the factory at the west coast in Berkeley, and the ingredients are from south Oakland.
+
 I think farmers who work with their family can't compete with the big company at the price since they have controlled thousands of farmers. The big company can let people work in the assembly line to raise efficiency, which farmers work as individuals can never achieve.
+
 So, my conclusion is, the big companies have the advantage in price, so farmers work individually can never compete with them. So vegetables and meat in the package will be sold in more prevalence, and it will be more difficult for poor people to get organic food.
 
 
